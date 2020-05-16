@@ -1,2 +1,2 @@
 # edough-website
-website
+edough611@gmail.com
